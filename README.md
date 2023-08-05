@@ -5,8 +5,6 @@
 
 - 👯 I’m a FPT student 
 
-- 🤝 I’m looking for help with 
-
 - 💬 Ask me about anything 
 
 - 📫 How to reach me **khoadta29092000@gmail.com**
